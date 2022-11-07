@@ -24,7 +24,7 @@ I am a versatilist and easily adapt to different hats (Full Stack Web Developer 
 - 📫 &nbsp;How to reach me , you can email me at goelabhishek94@gmail.com
 - 💻 &nbsp;I am actively looking for jobs for the role of SDE.
 - 💬 &nbsp; Ask me about anything tech related, I am happy to help;
-- 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/rahul-jha98/)
+- 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/goelabhishek694/)
 - 📝 &nbsp; Checkout my [resume](<link>)
 - 📚 &nbsp; When I am free, I read fantasy and fiction novels.
 <br>
